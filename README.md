@@ -1,0 +1,1 @@
+MediCore Pharmaceuticals is a global pharmaceutical company specializing in researching and developing innovative medicines to improve community health and quality of life. We put patients at the center of everything we do.
